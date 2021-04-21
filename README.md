@@ -1,3 +1,3 @@
 # Como Usar
 
-comandos podem usar ;)
+comandos meus podem usar ;)
